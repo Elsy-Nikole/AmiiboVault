@@ -1,3 +1,3 @@
 link
 
-https://github.com/Elsy-Nikole/AmiiboVault.git
+https://youtu.be/SQASlGEn2Nc
